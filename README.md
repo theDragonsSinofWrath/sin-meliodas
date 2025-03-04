@@ -4,8 +4,10 @@
 ![6e94efc591257d76e2403f706c21e6b7](https://github.com/user-attachments/assets/d6b2a0a1-2f2d-4f11-a56c-0d5f04a340f6)
 
  ![tumblr_20d62df2a5ea384b11ddede49b39a5f5_c6f85edb_250](https://github.com/user-attachments/assets/f148339d-cd16-41fd-9294-6cb5f1589d00)
-ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,
-    ʏᴏᴜ ᴄᴀɴᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ.![tumblr_20d62df2a5ea384b11ddede49b39a5f5_c6f85edb_250](https://github.com/user-attachments/assets/c7195248-50e9-44ba-b268-c9be454a9322)
+<<ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,>>
+
+<<ʏᴏᴜ ᴄᴀɴᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ.>>
+
 
 
 
