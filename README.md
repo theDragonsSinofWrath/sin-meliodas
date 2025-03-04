@@ -1,5 +1,4 @@
-![Untitled276_20250304100206](https://github.com/user-attachments/assets/f5ff84fc-8ec0-4d94-a1fd-29e53bb01020)
-
+![cognaa](https://github.com/user-attachments/assets/a8898fac-d7d6-4f95-8fe3-ebbaeb53cfcb)
 
 
 
@@ -31,7 +30,7 @@
 ![neyq12](https://github.com/user-attachments/assets/84e09a6a-2333-486c-b6ef-04f099265e55)
 
 
-![Untitled276_20250304094941](https://github.com/user-attachments/assets/24084ba2-c7eb-4156-8d3c-24c0c1187c94)
+![4q5lgk](https://github.com/user-attachments/assets/6d00bf1e-4f4c-4b10-a2d3-00d4f31c67be)
 
 
 
@@ -62,5 +61,7 @@
 ![swsdy6](https://github.com/user-attachments/assets/266641a9-ad34-485c-afd1-7b2c825db079)
 ![3l5xwa](https://github.com/user-attachments/assets/abab5cf7-f8b5-4994-978e-e3ade26696f6)
 
-![Tumblr_l_532218878237102](https://github.com/user-attachments/assets/16380b5e-ff26-4896-ae24-7a149cd3268b)
-![i5bn6i](https://github.com/user-attachments/assets/aeb216e4-1052-44f7-a836-cc1bbd3eaf6c)
+
+ thanks for looking..💤
+![4b01328d](https://github.com/user-attachments/assets/d2748fd4-6b4b-4b65-96ad-37f57655c6ed)
+
