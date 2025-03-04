@@ -1,14 +1,18 @@
-![cognaa](https://github.com/user-attachments/assets/a8898fac-d7d6-4f95-8fe3-ebbaeb53cfcb)
+<p align="center"> <img src="https://github.com/user-attachments/assets/a8898fac-d7d6-4f95-8fe3-ebbaeb53cfcb"/>
 
 
 
-![6e94efc591257d76e2403f706c21e6b7](https://github.com/user-attachments/assets/d6b2a0a1-2f2d-4f11-a56c-0d5f04a340f6)
+<p align="center"> <img src="https://github.com/user-attachments/assets/d6b2a0a1-2f2d-4f11-a56c-0d5f04a340f6"/>
+
+<div align="center">
 
 ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,
 
-![382519d6-3416-44ee-b20c-8a39d85ef686-profile_banner-480](https://github.com/user-attachments/assets/d9a7567e-29fe-4a6e-8beb-bd20ca663280)
+<p align="center"> <img src="https://github.com/user-attachments/assets/d9a7567e-29fe-4a6e-8beb-bd20ca663280"/>
 
- ʏᴏᴜ ᴄᴀɴᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ.
+<div align="center">
+ 
+ʏᴏᴜ ᴄᴀɴᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ.
 
 
 
