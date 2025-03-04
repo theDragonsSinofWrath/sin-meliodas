@@ -6,7 +6,8 @@
 ░░░░░░ "ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,
 ░░░░░░ ░░░░░░ ʏᴏᴜ ᴄᴀɴ'ᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ." ░░░░░░
 
-![8ylxl2](https://github.com/user-attachments/assets/0e276b55-00c2-493c-8d58-3d0f0ff351e7)
+![4q5lgk](https://github.com/user-attachments/assets/d00134e2-8812-42ba-9b17-899104a4896e)
+
 
 ![n5n7vu](https://github.com/user-attachments/assets/c1815811-4cb9-4ae9-a042-27875aaa2285)
 
