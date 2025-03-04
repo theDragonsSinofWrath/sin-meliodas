@@ -3,7 +3,7 @@
 ![6e94efc591257d76e2403f706c21e6b7](https://github.com/user-attachments/assets/d6b2a0a1-2f2d-4f11-a56c-0d5f04a340f6)
 
 ░░░░░░ "ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,
-░░░░░░ ʏᴏᴜ ᴄᴀɴ'ᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ."
+░░░░░░ ░░░░░░ ʏᴏᴜ ᴄᴀɴ'ᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ." ░░░░░░
 
 ![8ylxl2](https://github.com/user-attachments/assets/0e276b55-00c2-493c-8d58-3d0f0ff351e7)
 
