@@ -18,7 +18,7 @@
 
 ![4q5lgk](https://github.com/user-attachments/assets/6d00bf1e-4f4c-4b10-a2d3-00d4f31c67be)
 
-![n5n7vu](https://github.com/user-attachments/assets/c1815811-4cb9-4ae9-a042-27875aaa2285)🥀
+![n5n7vu](https://github.com/user-attachments/assets/c1815811-4cb9-4ae9-a042-27875aaa2285)
  
 
 ![ud9qyc](https://github.com/user-attachments/assets/de5c467f-bac7-48f1-b43b-4fce43e053aa)
