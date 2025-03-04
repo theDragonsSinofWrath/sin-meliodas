@@ -3,8 +3,6 @@
 ![6e94efc591257d76e2403f706c21e6b7](https://github.com/user-attachments/assets/2b4b3abc-0544-49c5-a54a-63e9844c9fb4)
 
 
-![gej1vs](https://github.com/user-attachments/assets/c8ed26f4-3c2b-4077-84a3-88828fe36027)
-
-
+![8ylxl2](https://github.com/user-attachments/assets/0e276b55-00c2-493c-8d58-3d0f0ff351e7)
 
 .
