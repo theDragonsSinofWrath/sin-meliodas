@@ -12,7 +12,7 @@
 
 
 ![Tumblr_l_532218878237102](https://github.com/user-attachments/assets/16380b5e-ff26-4896-ae24-7a149cd3268b)
-
+<div align = "center>
 
 ![a07u0j](https://github.com/user-attachments/assets/87f759b5-f97d-485a-8da5-87063ccbcca8)
 ![ud9qyc](https://github.com/user-attachments/assets/de5c467f-bac7-48f1-b43b-4fce43e053aa)![7qu658](https://github.com/user-attachments/assets/3c4edba0-2253-4a17-b676-801898297025)
@@ -56,6 +56,5 @@
 ![swsdy6](https://github.com/user-attachments/assets/266641a9-ad34-485c-afd1-7b2c825db079)
 ![3l5xwa](https://github.com/user-attachments/assets/abab5cf7-f8b5-4994-978e-e3ade26696f6)
 
-<div align = "center>
 
 ![3o5b16 (1)](https://github.com/user-attachments/assets/8a1d333f-549b-40b6-9050-4c81e41666cf)
