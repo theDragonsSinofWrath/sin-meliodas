@@ -7,7 +7,8 @@
 ░░░░░░ "ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,
 ░░░░░░ ░░░░░░ ʏᴏᴜ ᴄᴀɴ'ᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ." ░░░░░░
 
-![4q5lgk](https://github.com/user-attachments/assets/d00134e2-8812-42ba-9b17-899104a4896e)
+![tumblr_70e64ab5ffde106f3073987966a830fd_3096c9ba_1280](https://github.com/user-attachments/assets/2b38ffa9-f63d-4578-948b-9ded608963e6)
+
 
 
 ![n5n7vu](https://github.com/user-attachments/assets/c1815811-4cb9-4ae9-a042-27875aaa2285)
@@ -58,5 +59,6 @@
 ![swsdy6](https://github.com/user-attachments/assets/266641a9-ad34-485c-afd1-7b2c825db079)
 ![3l5xwa](https://github.com/user-attachments/assets/abab5cf7-f8b5-4994-978e-e3ade26696f6)
 
+![Tumblr_l_532218878237102](https://github.com/user-attachments/assets/16380b5e-ff26-4896-ae24-7a149cd3268b)
 
 ![3o5b16 (1)](https://github.com/user-attachments/assets/8a1d333f-549b-40b6-9050-4c81e41666cf)
