@@ -55,8 +55,7 @@
 ![4ardfk](https://github.com/user-attachments/assets/b5231416-0752-45ae-8b47-e9d11dd9791a)
 ![swsdy6](https://github.com/user-attachments/assets/266641a9-ad34-485c-afd1-7b2c825db079)
 ![3l5xwa](https://github.com/user-attachments/assets/abab5cf7-f8b5-4994-978e-e3ade26696f6)
-<div align = "center>
-!(https://github.com/user-attachments/assets/599bc601-f401-4266-a46f-a42e30cf39ff)
 
+<div align = "center>
 
 ![3o5b16 (1)](https://github.com/user-attachments/assets/8a1d333f-549b-40b6-9050-4c81e41666cf)
