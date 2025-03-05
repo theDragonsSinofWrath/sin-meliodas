@@ -1,22 +1,21 @@
-<p align="center"> <img src="https://github.com/user-attachments/assets/a8898fac-d7d6-4f95-8fe3-ebbaeb53cfcb"/>
+<p align="center"> <img src="https://github.com/user-attachments/assets/ee46c5e9-b9fe-425b-b80f-ebf4278590a3"/>
 
 
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/d6b2a0a1-2f2d-4f11-a56c-0d5f04a340f6"/>
+<p align="center"> <img src="https://github.com/user-attachments/assets/6e8a1362-974b-4ed1-a5ac-0bb7c09c0f01"/>
 
 <div align="center">
 
 ɴᴏ ᴍᴀᴛᴛᴇʀ ᴡʜᴀᴛ ʟɪᴇꜱ ʏᴏᴜ ᴛᴇʟʟ,
 
-<p align="center"> <img src="https://github.com/user-attachments/assets/d9a7567e-29fe-4a6e-8beb-bd20ca663280"/>
+<p align="center"> <img src="https://github.com/user-attachments/assets/c5512977-ec5f-4729-92c9-8576dc01e2ea"/>
 
 <div align="center">
  
 ʏᴏᴜ ᴄᴀɴᴛ ꜰᴏᴏʟ ʏᴏᴜʀ ᴏᴡɴ ʜᴇᴀʀᴛ.
 
+![aiw8ei](https://github.com/user-attachments/assets/cb34be6e-aa96-479c-952c-c6ded7f04002)
 
-
-![4q5lgk](https://github.com/user-attachments/assets/6d00bf1e-4f4c-4b10-a2d3-00d4f31c67be)
 
 ![n5n7vu](https://github.com/user-attachments/assets/c1815811-4cb9-4ae9-a042-27875aaa2285)
  
