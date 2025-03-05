@@ -1,3 +1,5 @@
+<https://github.com/antonkomarev/github-profile-views-counter.git>
+
 <p align="center"> <img src="https://github.com/user-attachments/assets/ee46c5e9-b9fe-425b-b80f-ebf4278590a3"/>
 
 
