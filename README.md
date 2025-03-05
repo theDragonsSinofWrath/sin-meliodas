@@ -1,4 +1,4 @@
-<https://github.com/antonkomarev/github-profile-views-counter.git>
+<https://github.com/TheDragonSinofWrath/github-profile-views-counter>
 
 <p align="center"> <img src="https://github.com/user-attachments/assets/ee46c5e9-b9fe-425b-b80f-ebf4278590a3"/>
 
